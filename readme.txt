@@ -1,0 +1,1 @@
+This is my first script ever so i hope i did good! If u have any questions u can contact me on Discord : jonkku_55  !
